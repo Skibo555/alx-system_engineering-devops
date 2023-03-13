@@ -1,1 +1,1 @@
-This is Redirections standard output/input
+Dare is mad
